@@ -1,4 +1,4 @@
 # My-love-
 Love repository
 <br>
-Author - Fasih Ahmed Sam
+Author - Fasih Ahmed (Sam Love)
